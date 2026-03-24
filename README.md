@@ -1,2 +1,0 @@
-# divyarani.github.io
-Portfolio
